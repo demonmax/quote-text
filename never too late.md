@@ -1,11 +1,5 @@
-Never too late
-====
->mastery is not about prefection. It's a journey,a process.  
-
-####first
-
- keep on ,output and receive feedback.  then you'll grown up rapidly.
-
+Never too late    
+keep on ,output and receive feedback.  then you'll grown up rapidly.mastery is not about prefection. It's a journey,a process.  
 
 ####process
 * ow 环境 节奏
